@@ -2,7 +2,7 @@
 
 Gosto bastante de jogos
 
-Amo pizza de sabor portuguesa
+Amo pizza de sabor portuguesa 🍕🍕🍕🍕
 
 ![Alt](https://3cc791f55f295f1d.cdn.gocache.net/versada/img_blog/i1_13_21_1114_041018.jpg)
 
